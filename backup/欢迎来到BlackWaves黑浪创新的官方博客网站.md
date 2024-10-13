@@ -1,0 +1,3 @@
+欢迎来到BlackWaves黑浪创新的官方博客网站，我是组织工作人员Sun，你可以叫我S。
+我们是一个富有信心和勇气的组织，如果你想联系我们，这是我们的邮箱：[S614646675xjygdg@outlook.com](mailto:S614646675xjygdg@outlook.com)
+2024.10.13
